@@ -21,5 +21,5 @@ E desde 2022 o fim de Abril e começo de Maio está apresentando picos de chuva 
 Pode ser que um novo padrão climático esteja vindo aí…
 
 E não parece que isso será bom para nós
---
+
 Fonte: Instituto Nacional de Metereologia (INMET)
